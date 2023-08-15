@@ -1,3 +1,3 @@
 # Birthday MY LOVE🎂 
 
-Made with Hoang Manh Khiem 
+Made with Nguyen Trieu Phu
